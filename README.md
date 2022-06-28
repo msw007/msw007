@@ -8,3 +8,7 @@ e tambem sobre scratch
 ![](https://img.shields.io/badge/Scratch-4D97FF?style=for-the-badge&logo=Scratch&logoColor=white)
 
 :smiley:
+
+estou enteressado em aprender novas coisas
+
+[games](https://pt.wikipedia.org/)
